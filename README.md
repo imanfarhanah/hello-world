@@ -17,3 +17,4 @@ My goals for March 2025?
 7. Practice IV/language proficiency
 
 Let's gooooo
+![image](https://github.com/user-attachments/assets/8fff3f65-f711-4e5a-b65b-6be758508fca)
