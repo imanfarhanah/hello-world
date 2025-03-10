@@ -17,5 +17,3 @@ My goals for March 2025?
 7. Practice IV/language proficiency
 
 Let's gooooo
-
-https://tenor.com/en-GB/view/chipi-chipi-chipi-chipi-chipi-chapa-chapa-cat-cat-chipi-gif-3982040863797256894
