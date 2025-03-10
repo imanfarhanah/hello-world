@@ -14,6 +14,7 @@ My goals for March 2025?
 4. Apply Master's as backup plan if I don't get a job (I want to get a job)
 5. Finish Google Business Intelligence track
 6. Continue learn new stuffs on DataCamp
-7. Practice IV/language proficiency
+7. Practice IV
+8. Read more books!
 
 Let's gooooo
